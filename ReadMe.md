@@ -1,0 +1,1 @@
+Bu Nagasurya kim arkadaş.
